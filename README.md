@@ -2,8 +2,8 @@
 - 👀 I’m interested in ...coding,gaming
 - 🌱 I’m currently learning ...cs btech
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...AJ
+- 📫 How to reach me ...ping me @angelinajollycheruthottil@gmail.com
+- 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...loves exploring
 
 <!---
